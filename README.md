@@ -1,1 +1,0 @@
-# shavorich.art
